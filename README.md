@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @UlugbekAxmedov
-- 👀 I’m interested in Coding and creat mobile apps
+- 👀 I’m interested in Coding and create mobile apps
 - 🌱 I’m currently learning ...
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me email: ulugbek6719917@gmail.com
